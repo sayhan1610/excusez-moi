@@ -1,5 +1,7 @@
 # [Excusez-Moi](https://sayhan1610.github.io/excusez_moi/)
 
+![Image](https://cloud-dtggjks5a-hack-club-bot.vercel.app/0image.png)
+
 Excuse me, one second, almost there, just a bit, yea there we go.
 
 \*clears throat\*
